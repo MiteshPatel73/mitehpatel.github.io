@@ -1,3 +1,1 @@
-Mitesh Patel
 
-BoA Project
